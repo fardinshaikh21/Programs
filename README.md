@@ -1,7 +1,8 @@
 # Python
-I am uploded all python programs created by me.
+I am uploded all Python programs created by me.
 
 # Java
+I am uploded all Java programs created by me.
 
 # C
 
