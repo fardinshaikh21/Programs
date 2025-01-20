@@ -1,11 +1,2 @@
-# Python
-
-
-# Java
-
-
-# C
-
-
-# C++
+# `Python`
 
