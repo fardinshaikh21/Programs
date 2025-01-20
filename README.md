@@ -1,2 +1,2 @@
 # `Python`
-- I am uploade all python programs basic to advance check it.
+- I am uploded all python programs basic to advance check it.
