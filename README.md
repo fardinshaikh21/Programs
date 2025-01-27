@@ -7,6 +7,5 @@
 ***
 ---
 # `C++`
-- I am uploded all **C++** programs basic to advance check it.
-***
+
 
