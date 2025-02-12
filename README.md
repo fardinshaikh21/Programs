@@ -13,10 +13,3 @@
 
 🤔
 [myWebsite](https://www.google.com/)
-
-fardin shaikh salauddin shaikhdhhdk
- sjhkhkl dgdt
-frdihi
-fdrunn
-gdthjojo
-gtfyfooooooooooooooo
