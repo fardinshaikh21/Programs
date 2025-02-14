@@ -14,10 +14,3 @@
 🤔
 [myWebsite](https://www.google.com/)
 
-fardin fardin
-Shaikh sgfjfl
-kalepadal gdhfkk sggdj
-pune fsrajh
-project shdjdk
-fsdhd gfjfj
-ffff gdfhj fsrdain fsrdin
