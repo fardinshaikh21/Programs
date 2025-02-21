@@ -13,6 +13,3 @@
 
 🤔
 [myWebsite](https://www.google.com/)
-
-fardinfardinfardinfardinfardinfardinfardinfardinfardin
-fardinfardinfardinfardinfardinfardinfardinfardinfardinfardin
